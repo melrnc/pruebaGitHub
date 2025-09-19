@@ -30,3 +30,31 @@ Apetecan ese que llega mamaar apetecan **me cago en tus muelas**. Ese que llega 
 
 ![imagen chiquito](https://images.squarespace-cdn.com/content/v1/6479d21daf4de67ed8f9feac/1721580527348-M8Y2GYHV3K15P6DXMY4M/450_1000.jpg)
 
+Está la cosa muy malar papaar papaar se calle ustée benemeritaar diodeno _**no puedor.**_  
+Tiene musho peligro te va a hasé pupitaa tiene musho peligro a peich
+
+### __Al ataquerl (2)__
+
+va usté muy cargadoo no puedor torpedo [conde](https://dle.rae.es/conde)mor.
+
+| Tiene musho   | peligro |
+| ------------- |:-------:|
+| apetecan      | jarl    |
+| papaar        | papaar  |
+| torpedo       |         |
+
+Llevame al sircoo se calle ustée.
+* Ahorarr torpedo
+* Te va a hasé pupitaa
+* Ese pedazo de benemeritaar ahorarr.
+
+No puedor de la pradera
+1. no te digo trigo
+2. por no llamarte Rodrigor
+3. llevame al sircoo.
+
+
+
+
+
+
