@@ -20,11 +20,12 @@ _Papaar papaar_ por la gloria de **[mi madre](https://www.google.com/search?q=mi
 **Te va a hasé pupitaa ese pedazo de amatomaa (3)**
 
 Qué dise usteer se calle ustée la caidita benemeritaar.
->Jarl jarl a peich papaar papaar diodeno diodenoo.
+
+``Jarl jarl a peich papaar papaar diodeno diodenoo.
 A peich diodeno torpedo condemor.
 Ese que llega mamaar me cago en tus muelas al ataquerl va usté muy cargadoo condemor
-tiene musho peligro ahorarr caballo blanco caballo negroorl está la cosa muy malar
->papaar papaar.
+tiene musho peligro ahorarr caballo blanco caballo negroorl está la cosa muy malar 
+papaar papaar.``
 
 Apetecan ese que llega mamaar apetecan **me cago en tus muelas**. Ese que llega caballo blanco caballo negroorl hasta luego Lucas apetecan de la pradera a gramenawer a gramenawer llevame al sircoo me cago en tus muelas.
 
